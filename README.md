@@ -1,0 +1,1 @@
+# Hardware-troubleshooting-Resolved-ticket.
